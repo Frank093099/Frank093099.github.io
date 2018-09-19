@@ -1,4 +1,4 @@
-![alt](https://raw.githubusercontent.com/Frank093099/Frank093099.github.io/master/2.jpeg)
+![alt](https://raw.githubusercontent.com/Frank093099/Frank093099.github.io/master/2.jpeg)  
 散文
 -------------------
 [诵读《人在旅途》文：独舞的蓝精灵‖诵：大魏哥](https://mp.weixin.qq.com/s/qJfaJb6Vm89cORC-77cJcA)  
