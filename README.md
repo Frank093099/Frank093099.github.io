@@ -52,6 +52,7 @@
 [第九期入选作品：黄真《夏天（组诗）》](https://mp.weixin.qq.com/s/gi_2HwAerXNrl7KtCXb2iw)  
 
 ##### 兰图多彩诗人作品  
+
 ##### 天竺山杂志作品  
 
 [【散笔书心】银花河，我故乡‖黄真](https://mp.weixin.qq.com/s/25a-pM7d__N7ys0IgwrClA)  
@@ -59,4 +60,10 @@
 [【秀美山阳】我的家在天竺山‖黄真](https://mp.weixin.qq.com/s/QNsQsWglxqKZjsBa0eeu9g)  
 
 ##### 南城文化作品  
+
 ##### 凤凰诗社作品  
+
+[凤凰诗社美洲总社035期三行微诗同题《祖国 我的梦》](https://www.meipian.cn/1mo5d7il?share_depth=2&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
+
+[《枫红醉秋◎诗选》凤凰美洲诗刊 (038期)](https://www.meipian.cn/1n8vgme8?share_depth=2&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
+
