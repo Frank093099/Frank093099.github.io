@@ -33,7 +33,11 @@
 
 [诵读《军训之歌》文：廖秋兵‖诵：焦文利](https://mp.weixin.qq.com/s/LBxf0yycjDma4ljPKWVYyg)  
 
+[诵读《相约九月》文：廖秋兵‖诵：自由如风](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247502469&idx=2&sn=fcf0f86e2649bb3e5b3e1dcb6e7e46d5&chksm=eb738ac5dc0403d3c9527ca267e966b223c11d04786bc551fb40e028078841f02a51ce6cca8a&mpshare=1&scene=2&srcid=0923cq3YmEova7z14OaXHiLz&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
+
 [【长安风.山之恋分社】《祥林嫂的苦恼》文：山风‖诵：月儿](https://mp.weixin.qq.com/s/sT0uN1XbTsuf6zMHPG9cCA)  
+
+[【长安风.山之恋分社】《祥林嫂的幸福》文：山风‖诵：月儿](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247502335&idx=1&sn=3672e471edfb90d864a92ee00e32cc41&chksm=eb7389bfdc0400a92a55dafd771af66c9b4562dec91a1e529fcdd115553deb5d74686eb10234&mpshare=1&scene=2&srcid=0919rVDvJGSmMw86HeQ3WNPR&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
 
 ##### 绿色文学作品  
 
