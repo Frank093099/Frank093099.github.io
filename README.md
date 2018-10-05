@@ -67,3 +67,11 @@
 
 [《枫红醉秋◎诗选》凤凰美洲诗刊 (038期)](https://www.meipian.cn/1n8vgme8?share_depth=2&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
 
+[凤凰诗刊 ‖ 凤凰诗社美洲总社015期“三行微诗实力诗人”专辑](https://mp.weixin.qq.com/s?__biz=MzUyNjgwNDIwMA==&mid=2247483826&idx=1&sn=ebafb6deb9d6299e02185816dd19fb8b&chksm=fa087435cd7ffd23018f75a461d53567ebaa3b0813ab152ea15e39a2143ba84d851434c5c6ac&mpshare=1&scene=2&srcid=0916xgPVCvZkF1tPuZMiTMxl&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
+
+[《凤凰诗社美洲总社微诗社006期微诗同题“恩师”](https://www.meipian.cn/1lr9an71?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=null&first_share_uid=null&from=timeline)  
+
+[李英、云渊、黄真等微诗欣赏](https://ishare.iclient.ifeng.com/tizmm/news/shareNews?fromType=vampire&forward=1&aid=sub_78735646&ch=&aman=deNcd3yfdbQ43aGeafk7afs404i350G7e0T9dfNb17&gud=99j894K379&from=timeline)  
+
+[凤凰诗社美洲总社033期三行微诗同题《醉落夕风》](https://www.meipian.cn/1m9excry?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
+
