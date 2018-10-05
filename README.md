@@ -9,6 +9,9 @@
 
 [【长安风分社】《听蝉》文：独舞的蓝精灵‖诵：紫菱菱](https://mp.weixin.qq.com/s/UCdbEiml2cNt0OjxPhXDgw)  
 
+[诵读《一枚粽子的怀想》文：独舞的蓝精灵‖诵：青青草](https://mp.weixin.qq.com/s/lqRX70zAFu3XwYcbsggNJg)  
+
+[诵读《端午，我要回故乡》文：独舞的蓝精灵‖诵：青青草](https://mp.weixin.qq.com/s/2aDvy1js0GgYUUDOorFZuQ)  
 
 诗
 -------------------
@@ -25,6 +28,12 @@
 [诵读《我，这是要去哪里》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/bhu8vIeWvlsA0WcjGAW6sw)  
 
 [【长安风.山之恋分社】《开学了》(组诗) 文：山风‖诵：大魏哥](https://mp.weixin.qq.com/s/c3zBH1pMkc41ekljNeLl3A)  
+
+[【长安风.山之恋分社】《西游人生》文：山风‖诵：桃子](https://mp.weixin.qq.com/s/Wau6opfJ2Ak7sdI56xUjaA)  
+
+[诵读《军训之歌》文：廖秋兵‖诵：焦文利](https://mp.weixin.qq.com/s/LBxf0yycjDma4ljPKWVYyg)  
+
+[【长安风.山之恋分社】《祥林嫂的苦恼》文：山风‖诵：月儿](https://mp.weixin.qq.com/s/sT0uN1XbTsuf6zMHPG9cCA)  
 
 ##### 绿色文学作品  
 
