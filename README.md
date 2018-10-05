@@ -53,6 +53,8 @@
 
 ##### 兰图多彩诗人作品  
 
+[兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
+
 ##### 天竺山杂志作品  
 
 [【散笔书心】银花河，我故乡‖黄真](https://mp.weixin.qq.com/s/25a-pM7d__N7ys0IgwrClA)  
@@ -60,6 +62,8 @@
 [【秀美山阳】我的家在天竺山‖黄真](https://mp.weixin.qq.com/s/QNsQsWglxqKZjsBa0eeu9g)  
 
 ##### 南城文化作品  
+
+[文学驿站|黄真：校园九月（诗词五首）](https://mp.weixin.qq.com/s?__biz=MzAxMTk3NTczMg==&mid=2247492466&idx=2&sn=9ae5458eb833aae036fd9d1d4dae754d&chksm=9bba4e29accdc73f2d6d041b7913381a49638c528fca7dec721e68831e2e4232812bd9e96d36&mpshare=1&scene=2&srcid=0911Su67WBzkUGCnpkyBrfJy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
 
 ##### 凤凰诗社作品  
 
@@ -75,3 +79,15 @@
 
 [凤凰诗社美洲总社033期三行微诗同题《醉落夕风》](https://www.meipian.cn/1m9excry?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
 
+[中秋月圆我梦同题诗歌36首微诗：海上生明月 天涯共此诗](https://mbd.baidu.com/newspage/data/landingshare?pageType=1&isBdboxFrom=1&context=%7B%22nid%22%3A%22news_9477160584793500563%22%2C%22sourceFrom%22%3A%22bjh%22%7D&from=timeline&isappinstalled=0)  
+
+[凤凰诗社美洲总社036期三行微诗同题《明月千里》](http://www.21mingren.com/web/viewarticle.asp?userid=1165709&lanmuid=8352451&contentID=2605618&from=timeline)  
+
+[中秋月圆我梦同题诗歌36首微诗：海上生明月 天涯共此诗](https://mbd.baidu.com/newspage/data/landingshare?pageType=1&isBdboxFrom=1&context=%7B%22nid%22%3A%22news_9477160584793500563%22%2C%22sourceFrom%22%3A%22bjh%22%7D&from=timeline&isappinstalled=0)  
+
+
+##### 诗情太平洋作品  
+
+[同题 | 【诗情太平洋】第55期《迂回》（现代诗篇，下）](https://mp.weixin.qq.com/s?__biz=MzI4Mzc0NzIzMA==&mid=2247484178&idx=2&sn=3c1800f586f1abf4c20191a869ea501f&chksm=eb84b5e3dcf33cf5a8c65b7ebf23d69a5f656778bd14aae148e28c47b5f274b54187b592bcd9&mpshare=1&scene=2&srcid=0927etT2rVh5Ysi3RkMIpSAA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
+
+[同题 | 【诗情太平洋】第54期《宠辱不惊》（现代诗篇，下）](https://mp.weixin.qq.com/s?__biz=MzI4Mzc0NzIzMA==&mid=2247484166&idx=2&sn=ad2bf861f2c14ee0228a20e1de9a5cce&chksm=eb84b5f7dcf33ce148ea0e8e075742b38e1cb89d3454fdf6f02dc11739fcf56e3914f8261bd2&mpshare=1&scene=2&srcid=0922O24LBpSctvwxfXrxtn9g&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
