@@ -83,7 +83,9 @@
 
 [凤凰诗社美洲总社036期三行微诗同题《明月千里》](http://www.21mingren.com/web/viewarticle.asp?userid=1165709&lanmuid=8352451&contentID=2605618&from=timeline)  
 
-[中秋月圆我梦同题诗歌36首微诗：海上生明月 天涯共此诗](https://mbd.baidu.com/newspage/data/landingshare?pageType=1&isBdboxFrom=1&context=%7B%22nid%22%3A%22news_9477160584793500563%22%2C%22sourceFrom%22%3A%22bjh%22%7D&from=timeline&isappinstalled=0)  
+[中秋月圆我梦同题诗歌36首微诗：海上生明月 天涯共此诗](https://mbd.baidu.com/newspage/data/landingshare?pageType=1&isBdboxFrom=1&context=%7B%22nid%22%3A%22news_9477160584793500563%22%2C%22sourceFrom%22%3A%22bjh%22%7D&from=timeline&isappinstalled=0)
+
+[【凤凰诗人】黄真“秋之约”微诗专辑](https://raw.githubusercontent.com/Frank093099/Frank093099.github.io/master/%E7%A7%8B%E4%B9%8B%E7%BA%A6.md)  
 
 
 ##### 诗情太平洋作品  
