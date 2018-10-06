@@ -9,9 +9,13 @@
 
 [【长安风分社】《听蝉》文：独舞的蓝精灵‖诵：紫菱菱](https://mp.weixin.qq.com/s/UCdbEiml2cNt0OjxPhXDgw)  
 
-[诵读《一枚粽子的怀想》文：独舞的蓝精灵‖诵：青青草](https://mp.weixin.qq.com/s/lqRX70zAFu3XwYcbsggNJg)  
+[诵读《一枚粽子的怀想》文：独舞的蓝精灵‖诵：青青草](https://mp.weixin.qq.com/s/lqRX70zAFu3XwYcbsggNJg) 
 
-[诵读《端午，我要回故乡》文：独舞的蓝精灵‖诵：青青草](https://mp.weixin.qq.com/s/2aDvy1js0GgYUUDOorFZuQ)  
+[诵读《端午，我要回故乡》文：独舞的蓝精灵‖诵：青青草](https://mp.weixin.qq.com/s/2aDvy1js0GgYUUDOorFZuQ) 
+
+[配乐散文《花儿为谁红》文：独舞的蓝精灵‖配乐：晨曦](https://mp.weixin.qq.com/s/VcooosjWATayR_rWf7aVTA)
+
+[黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&;idx=3&sn=02c6ef044c03bcabae9871ecf6126176&amp;chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0724Hg2EeZl4CEBnFBOKnMpW&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)
 
 诗
 -------------------
@@ -29,9 +33,11 @@
 [长安风-山之恋分社】《感恩遇见你》文：山风‖诵：大魏哥](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247500331&;idx=1&sn=bd43d0787bc83eec25452d3ee24fdeb6&amp;chksm=eb73826bdc040b7db03677cfc869b7778d1a42aa92815c13b152c5e1151ed92cafcd1b0fd1ad&mpshare=1&scene=2&srcid=0823rKCndA42eJuJzEN985SX&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1
 )  
 
-[【长安风.山之恋分社】《开学了》(组诗) 文：山风‖诵：大魏哥](https://mp.weixin.qq.com/s/c3zBH1pMkc41ekljNeLl3A)  
+【长安风.山之恋分社】《开学了》(组诗) 文：山风‖诵：大魏哥](https://mp.weixin.qq.com/s/c3zBH1pMkc41ekljNeLl3A)  
 
-[【长安风.山之恋分社】《西游人生》文：山风‖诵：桃子](https://mp.weixin.qq.com/s/Wau6opfJ2Ak7sdI56xUjaA)  
+【长安风.山之恋分社】《西游人生》文：山风‖诵：桃子](https://mp.weixin.qq.com/s/Wau6opfJ2Ak7sdI56xUjaA) 
+
+【长安风.山之恋分社】《让他走吧》文：山风‖诵：月儿](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247502312&;idx=7&sn=58e5f00e3fd6e9f7e48f6ae8a1561183&amp;chksm=eb7389a8dc0400be68d52145d20812b9039a666a32cce6d868f2b22f92a8513556e489c6cfa8&mpshare=1&scene=2&srcid=0918GBHPqsRTmQhYx8lfLp27&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)  
 
 [诵读《军训之歌》文：廖秋兵‖诵：焦文利](https://mp.weixin.qq.com/s/LBxf0yycjDma4ljPKWVYyg)  
 
@@ -40,6 +46,12 @@
 [【长安风.山之恋分社】《祥林嫂的苦恼》文：山风‖诵：月儿](https://mp.weixin.qq.com/s/sT0uN1XbTsuf6zMHPG9cCA)  
 
 [【长安风.山之恋分社】《祥林嫂的幸福》文：山风‖诵：月儿](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247502335&idx=1&sn=3672e471edfb90d864a92ee00e32cc41&chksm=eb7389bfdc0400a92a55dafd771af66c9b4562dec91a1e529fcdd115553deb5d74686eb10234&mpshare=1&scene=2&srcid=0919rVDvJGSmMw86HeQ3WNPR&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
+
+[诵读《复读》文：独舞的蓝精灵‖诵：云芝](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247498756&;idx=3&sn=30acba441d9f55b7e6051ae7317a11f5&amp;chksm=eb73bc44dc043552340e0e27810b591f953c203ad6e866a56c78d7eca60bc74ec9383e384260&mpshare=1&scene=2&srcid=0724uZDPNG2Bs89jzOTNOJM5&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1) 
+
+[诵读《一天奔忙一辈子》文：独舞的蓝精灵‖诵：大魏哥](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247498794&;idx=1&sn=98bc9f7fa038f685c143a0c09db84fd2&amp;chksm=eb73bc6adc04357c0331b4e29c7cf93f5467443e186d5cd004e308129ce97dc584aed22a68dc&mpshare=1&scene=2&srcid=07252NO7kkUKZGqfrYezqDMw&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)  
+
+
 
 ##### 绿色文学作品  
 
@@ -55,7 +67,13 @@
 
 ##### 兰图多彩诗人作品  
 
+[兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1) 
+
+[兰图多彩诗歌总社1672期《乘车人生》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247495182&;idx=1&sn=96ec598869a7e19e0ed438e6a3cfe90b&amp;chksm=fdff87e0ca880ef64005b0bcb998d112a3f5ce40e7ba29fd7a4d7a6f94b553eed070a1fcc48b&mpshare=1&scene=2&srcid=08086wyFdyKRVXh1xzU7Yjvk&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1) 
+
 [兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
+
+
 
 ##### 天竺山杂志作品  
 
