@@ -15,7 +15,7 @@
 
 [配乐散文《花儿为谁红》文：独舞的蓝精灵‖配乐：晨曦](https://mp.weixin.qq.com/s/VcooosjWATayR_rWf7aVTA)
 
-[黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&;idx=3&sn=02c6ef044c03bcabae9871ecf6126176&amp;chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0724Hg2EeZl4CEBnFBOKnMpW&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)
+[黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&idx=3&sn=02c6ef044c03bcabae9871ecf6126176&chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0803WzmOPlwCjk4GWkWqZnZA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&wx_header=1)
 
 诗
 -------------------
