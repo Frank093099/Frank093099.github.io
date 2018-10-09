@@ -15,7 +15,9 @@
 
 [配乐散文《花儿为谁红》文：独舞的蓝精灵‖配乐：晨曦](https://mp.weixin.qq.com/s/VcooosjWATayR_rWf7aVTA)
 
-[黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&idx=3&sn=02c6ef044c03bcabae9871ecf6126176&chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0803WzmOPlwCjk4GWkWqZnZA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&wx_header=1)
+[黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&idx=3&sn=02c6ef044c03bcabae9871ecf6126176&chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0803WzmOPlwCjk4GWkWqZnZA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&wx_header=1) 
+
+[【商洛作家】 <<怀念我的母亲>> || 黄真](https://mp.weixin.qq.com/s/LANyWmINyPf67Rcc7De4JA)
 
 诗
 -------------------
@@ -49,7 +51,10 @@
    
 [诵读《复读》文：独舞的蓝精灵‖诵：云芝](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247498756&;idx=3&sn=30acba441d9f55b7e6051ae7317a11f5&amp;chksm=eb73bc44dc043552340e0e27810b591f953c203ad6e866a56c78d7eca60bc74ec9383e384260&mpshare=1&scene=2&srcid=0724uZDPNG2Bs89jzOTNOJM5&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1) 
   
-[诵读《一天奔忙一辈子》文：独舞的蓝精灵‖诵：大魏哥](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247498794&;idx=1&sn=98bc9f7fa038f685c143a0c09db84fd2&amp;chksm=eb73bc6adc04357c0331b4e29c7cf93f5467443e186d5cd004e308129ce97dc584aed22a68dc&mpshare=1&scene=2&srcid=07252NO7kkUKZGqfrYezqDMw&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)  
+[诵读《一天奔忙一辈子》文：独舞的蓝精灵‖诵：大魏哥](https://mp.weixin.qq.com/s?__biz=MzI3NjczMjIwNw==&mid=2247498794&;idx=1&sn=98bc9f7fa038f685c143a0c09db84fd2&amp;chksm=eb73bc6adc04357c0331b4e29c7cf93f5467443e186d5cd004e308129ce97dc584aed22a68dc&mpshare=1&scene=2&srcid=07252NO7kkUKZGqfrYezqDMw&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)    
+
+
+[【商洛作家】《小石头的宿命》 || 黄真](https://mp.weixin.qq.com/s/pITvKS30GebrLQSsTxhTBQ) 
 
 
 
