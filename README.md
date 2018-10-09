@@ -69,8 +69,7 @@
 
 [兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1) 
 
-[兰图多彩诗歌总社1672期《乘车人生》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247495182&;idx=1&sn=96ec598869a7e19e0ed438e6a3cfe90b&amp;chksm=fdff87e0ca880ef64005b0bcb998d112a3f5ce40e7ba29fd7a4d7a6f94b553eed070a1fcc48b&mpshare=1&scene=2&srcid=08086wyFdyKRVXh1xzU7Yjvk&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1
-) 
+[兰图多彩诗歌总社1672期《乘车人生》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247495182&;idx=1&sn=96ec598869a7e19e0ed438e6a3cfe90b&amp;chksm=fdff87e0ca880ef64005b0bcb998d112a3f5ce40e7ba29fd7a4d7a6f94b553eed070a1fcc48b&mpshare=1&scene=2&srcid=08086wyFdyKRVXh1xzU7Yjvk&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)  
 
 [兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
 
@@ -108,6 +107,17 @@
 
 [【凤凰诗人】黄真“秋之约”微诗专辑](https://www.jianshu.com/p/457100134f53)  
 
+
+[【凤凰诗人】今日头条](https://m.toutiaocdn.com/i6608167561538306574/?iid=45290553026&app=news_article&amp;timestamp=1538585654&group_id=6608167561538306574&amp;tt_from=weixin&utm_source=weixin&utm_medium=toutiao_ios&utm_campaign=client_share&amp;wxshare_count=5&from=timeline&isappinstalled=0&amp;pbid=6608272354718746116)  
+
+  
+[《枫红醉秋◎诗选》凤凰美洲诗刊 (038期) - 美篇](https://www.meipian.cn/1n8vgme8?share_depth=2&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&amp;first_share_uid=16790109&from=timeline)   
+
+    
+[《栖旅若……》凤凰美洲诗刊039期 - 美篇](https://www.meipian.cn/1nn8n6h2?share_depth=1&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&amp;first_share_uid=16790109&from=timeline)  
+
+      
+[凤凰诗社美洲总社微诗社009期 - 美篇](https://www.meipian.cn/1n3dbyq7?share_depth=1&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&amp;first_share_uid=49509441&from=timeline)  
 
 ##### 诗情太平洋作品  
 
