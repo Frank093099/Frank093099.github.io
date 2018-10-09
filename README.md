@@ -17,7 +17,10 @@
 
 [黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&idx=3&sn=02c6ef044c03bcabae9871ecf6126176&chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0803WzmOPlwCjk4GWkWqZnZA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&wx_header=1) 
 
-[【商洛作家】 <<怀念我的母亲>> || 黄真](https://mp.weixin.qq.com/s/LANyWmINyPf67Rcc7De4JA)
+[【商洛作家】 <<怀念我的母亲>> || 黄真](https://mp.weixin.qq.com/s/LANyWmINyPf67Rcc7De4JA)  
+
+
+
 
 诗
 -------------------
@@ -84,11 +87,17 @@
 
 [【散笔书心】银花河，我故乡‖黄真](https://mp.weixin.qq.com/s/25a-pM7d__N7ys0IgwrClA)  
 
-[【秀美山阳】我的家在天竺山‖黄真](https://mp.weixin.qq.com/s/QNsQsWglxqKZjsBa0eeu9g)  
+[【秀美山阳】我的家在天竺山‖黄真](https://mp.weixin.qq.com/s/QNsQsWglxqKZjsBa0eeu9g)   
+
+
+
 
 ##### 南城文化作品  
 
-[文学驿站 ‖ 黄真：校园九月（诗词五首）](https://mp.weixin.qq.com/s?__biz=MzAxMTk3NTczMg==&mid=2247492466&idx=2&sn=9ae5458eb833aae036fd9d1d4dae754d&chksm=9bba4e29accdc73f2d6d041b7913381a49638c528fca7dec721e68831e2e4232812bd9e96d36&mpshare=1&scene=2&srcid=0911Su67WBzkUGCnpkyBrfJy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
+[文学驿站 ‖ 黄真：校园九月（诗词五首）](https://mp.weixin.qq.com/s?__biz=MzAxMTk3NTczMg==&mid=2247492466&idx=2&sn=9ae5458eb833aae036fd9d1d4dae754d&chksm=9bba4e29accdc73f2d6d041b7913381a49638c528fca7dec721e68831e2e4232812bd9e96d36&mpshare=1&scene=2&srcid=0911Su67WBzkUGCnpkyBrfJy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)    
+
+
+
 
 ##### 凤凰诗社作品  
 
@@ -122,7 +131,11 @@
 [《栖旅若……》凤凰美洲诗刊039期 - 美篇](https://www.meipian.cn/1nn8n6h2?share_depth=1&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&amp;first_share_uid=16790109&from=timeline)  
 
       
-[凤凰诗社美洲总社微诗社009期 - 美篇](https://www.meipian.cn/1n3dbyq7?share_depth=1&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&amp;first_share_uid=49509441&from=timeline)  
+[凤凰诗社美洲总社微诗社009期 - 美篇](https://www.meipian.cn/1n3dbyq7?share_depth=1&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&amp;first_share_uid=49509441&from=timeline)    
+
+
+
+
 
 ##### 诗情太平洋作品  
 
