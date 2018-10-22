@@ -19,6 +19,8 @@
 
 [【商洛作家】 <<怀念我的母亲>> || 黄真](https://mp.weixin.qq.com/s/LANyWmINyPf67Rcc7De4JA)  
 
+[散文//活涩生香](https://www.jianshu.com/p/246c8d87d37f)  
+
 
 
 
@@ -73,6 +75,8 @@
 ##### 黄土情文学作品  
 
 [你是老师——写在教师节前夕‖黄真](https://mp.weixin.qq.com/s/65iEEQh2EfzI3XSo1pObfQ)  
+
+[《黄土文学》创刊入选作者——黄真](https://mp.weixin.qq.com/s/jm019l9iit1LdS0puN6bJw)  
 
 ##### 大西北诗人作品  
 
@@ -147,6 +151,7 @@
 
 [《流水抚……》凤凰美洲诗刊044期 - 美篇](https://www.meipian.cn/1ok18l5y?share_depth=5&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
 
+[凤凰诗社美洲总社微诗社010期三行微诗同题《梦吴越》](https://www.meipian.cn/1nvw60rz?share_depth=1&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&first_share_uid=49509441&from=timeline)  
 
 
 
@@ -157,3 +162,5 @@
 [同题 ‖ 【诗情太平洋】第54期《宠辱不惊》（现代诗篇，下）](https://mp.weixin.qq.com/s?__biz=MzI4Mzc0NzIzMA==&mid=2247484166&idx=2&sn=ad2bf861f2c14ee0228a20e1de9a5cce&chksm=eb84b5f7dcf33ce148ea0e8e075742b38e1cb89d3454fdf6f02dc11739fcf56e3914f8261bd2&mpshare=1&scene=2&srcid=0922O24LBpSctvwxfXrxtn9g&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
 
 [同题 ‖ 【诗情太平洋】第57期《飞越海岸线》（古韵篇）](https://mp.weixin.qq.com/s?__biz=MzI4Mzc0NzIzMA==&mid=2247484208&idx=2&sn=1fde2f918a3b6f440a3f9003b6919578&chksm=eb84b5c1dcf33cd7bcafec23833fb90a8bb1cbbf35639d73e9e526073978b967b39a17a49fa4&mpshare=1&scene=2&srcid=1010V9TaEPSwEBeG2z4XdtGG&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=qv1bfFLVyjDbHLuXmHrH%2Bj%2BDGGflhA7qn3Q7jCvknBvnmqL4kpEpk8E1LU5iM8DO&wx_header=1)  
+
+[同题  ‖ 【诗情太平洋】第58期《呼唤黎明》（现代诗篇，上）](https://mp.weixin.qq.com/s/V8S1dmNDRxBqjlYoRJop_A)  
