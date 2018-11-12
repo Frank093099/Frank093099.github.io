@@ -156,15 +156,15 @@
 
 [凤凰诗社美洲总社微诗社010期三行微诗同题《梦吴越》](https://www.meipian.cn/1nvw60rz?share_depth=1&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&first_share_uid=49509441&from=timeline)  
 
-[《立冬》三行诗同题精品 ||凤凰诗社美洲总社微诗社](https://mp.weixin.qq.com/s/WWI3KVXrZZdbMbnOXoD_Eg)  
+[《立冬》三行诗同题精品 凤凰诗社美洲总社微诗社](https://mp.weixin.qq.com/s/WWI3KVXrZZdbMbnOXoD_Eg)  
 
 [凤凰诗社美洲总社011期同题现代诗《你是一首诗》 - 美篇](https://www.meipian.cn/1qcnu7ov?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&first_share_uid=49509441&from=timeline&openid=ohbsluA9pAxp2hwCtZjLPcxOOfAc&nickname=%E7%8B%AC%E8%88%9E%E7%9A%84%E8%93%9D%E7%B2%BE%E7%81%B5&sex=1&language=zh_CN&city=&province=&country=%E4%BA%9A%E7%BE%8E%E5%B0%BC%E4%BA%9A&headimgurl=http://thirdwx.qlogo.cn/mmopen/vi_32/LR8sl1PEtPjKE8JL6jibMOPujBiagibibOziaq2sib7ftatL6ic5KkKq9CnPwb6FiaMPToF0QaF6b58HzB6b5bKFlXIYGA/132&unionid=ojq1tt61BY7nB6CdW1mwi2guTouA&sign=00b6aead5e38c1d8d293a6f1a1dbf757#)  
 
 [凤凰诗社美洲总社微诗社《缱绻的画卷》同题精品](https://www.toutiao.com/i6621121053252911630)  
 
-[《翠竹青青》同题精品 || 凤凰诗社美洲总社微诗社](https://mp.weixin.qq.com/s/BIL_rJTXQGJmXAf-A6B58A)  
+[《翠竹青青》同题精品  凤凰诗社美洲总社微诗社](https://mp.weixin.qq.com/s/BIL_rJTXQGJmXAf-A6B58A)  
 
-[凤凰诗刊 || 凤凰诗社美洲总社026期三行微诗同题《锅碗瓢盆》](https://mp.weixin.qq.com/s?__biz=MzUyNjgwNDIwMA==&mid=2247483893&idx=1&sn=3b8976d2f7be6cd3f53ee2df798e2138&chksm=fa087472cd7ffd64fa2605e456054119941b7d8825bc90ec55063b59562c24c78b519e6b95a5&mpshare=1&scene=2&srcid=1031KQe0Jnkc1MGD9d3BPhCF&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=AwABAAoACwAUAAMAJZceAFmZHgCMmR4AAAA%3D&lang=zh_CN&pass_ticket=OG8haxMeRkGg2SiJUjNOpCdWb3tzuKJNEwFwFh7jg0RoSjVcofDKzRLeDgtxCVhT&wx_header=1)  
+[凤凰诗刊  凤凰诗社美洲总社026期三行微诗同题《锅碗瓢盆》](https://mp.weixin.qq.com/s?__biz=MzUyNjgwNDIwMA==&mid=2247483893&idx=1&sn=3b8976d2f7be6cd3f53ee2df798e2138&chksm=fa087472cd7ffd64fa2605e456054119941b7d8825bc90ec55063b59562c24c78b519e6b95a5&mpshare=1&scene=2&srcid=1031KQe0Jnkc1MGD9d3BPhCF&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=AwABAAoACwAUAAMAJZceAFmZHgCMmR4AAAA%3D&lang=zh_CN&pass_ticket=OG8haxMeRkGg2SiJUjNOpCdWb3tzuKJNEwFwFh7jg0RoSjVcofDKzRLeDgtxCVhT&wx_header=1)  
 
 [凤凰大洋洲总社【骄阳有约】有声文学平台031期 黄真《望乡 组诗两首》](https://mp.weixin.qq.com/s/_uKNjpKDWaiHIQCYWKPF9A)  
 
@@ -182,7 +182,7 @@
 
 [同题  ‖ 【诗情太平洋】第58期《呼唤黎明》（现代诗篇，上）](https://mp.weixin.qq.com/s/V8S1dmNDRxBqjlYoRJop_A)  
 
-[同题 | 【诗情太平洋】【一路诗香】第60期《风花雪月》（现代诗篇，上）](https://mp.weixin.qq.com/s/cuBCeyllajOrECuedtTozA)  
+[同题  【诗情太平洋】【一路诗香】第60期《风花雪月》（现代诗篇，上）](https://mp.weixin.qq.com/s/cuBCeyllajOrECuedtTozA)  
 
 #### 山风的诗（主题专辑）
 
