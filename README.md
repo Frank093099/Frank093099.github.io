@@ -21,7 +21,7 @@
 
 [散文//活涩生香](https://www.jianshu.com/p/246c8d87d37f)  
 
-
+[【山风散文】之七《记得那时年纪小》 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/06b35b4ac937)  
 
 
 诗
@@ -61,6 +61,9 @@
 
 [【商洛作家】《小石头的宿命》 丨 黄真](https://mp.weixin.qq.com/s/pITvKS30GebrLQSsTxhTBQ) 
 
+[【长安风.山之恋分社】《饮尽孤独》文：山风‖诵：陈妮](https://mp.weixin.qq.com/s/2cS2B54iOZgEjVc-EB1whw)  
+
+[【长安风.山之恋分社】《流水抚平创伤》文：山风‖诵：月儿](https://mp.weixin.qq.com/s/Spb2K6ruVY1CPqwv-FVamg)  
 
 
 ##### 绿色文学作品  
@@ -86,7 +89,7 @@
 
 [兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1) 
 
-[兰图多彩诗歌总社1672期《乘车人生》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247495182&;idx=1&sn=96ec598869a7e19e0ed438e6a3cfe90b&amp;chksm=fdff87e0ca880ef64005b0bcb998d112a3f5ce40e7ba29fd7a4d7a6f94b553eed070a1fcc48b&mpshare=1&scene=2&srcid=08086wyFdyKRVXh1xzU7Yjvk&from=timeline&;ascene=2&amp;devicetype=android-24&amp;version=26060739&;nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&amp;pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&amp;wx_header=1)  
+[兰图多彩诗歌总社1672期《乘车人生》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247495182&idx=1&sn=96ec598869a7e19e0ed438e6a3cfe90b&chksm=fdff87e0ca880ef64005b0bcb998d112a3f5ce40e7ba29fd7a4d7a6f94b553eed070a1fcc48b&mpshare=1&scene=2&srcid=08086wyFdyKRVXh1xzU7Yjvk&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&wx_header=1)  
 
 [兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
 
@@ -145,7 +148,7 @@
 [《落叶泪》凤凰美洲诗刊（040期） - 美篇](https://www.meipian.cn/1nsrryxg?share_depth=6&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
 
 
-[凤凰诗社 || 凤凰诗社美洲总社021期三行微诗同题《霓虹的诱惑》](https://mp.weixin.qq.com/s/w8kekOkd16arnaPaDJ7Lcw)  
+[凤凰诗社  凤凰诗社美洲总社021期三行微诗同题《霓虹的诱惑》](https://mp.weixin.qq.com/s/w8kekOkd16arnaPaDJ7Lcw)  
 
 [《龙入海》 - 美篇](https://www.meipian.cn/1odab9nb?share_depth=1&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
 
@@ -153,7 +156,21 @@
 
 [凤凰诗社美洲总社微诗社010期三行微诗同题《梦吴越》](https://www.meipian.cn/1nvw60rz?share_depth=1&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&first_share_uid=49509441&from=timeline)  
 
+[《立冬》三行诗同题精品 ||凤凰诗社美洲总社微诗社](https://mp.weixin.qq.com/s/WWI3KVXrZZdbMbnOXoD_Eg)  
 
+[凤凰诗社美洲总社011期同题现代诗《你是一首诗》 - 美篇](https://www.meipian.cn/1qcnu7ov?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&first_share_uid=49509441&from=timeline&openid=ohbsluA9pAxp2hwCtZjLPcxOOfAc&nickname=%E7%8B%AC%E8%88%9E%E7%9A%84%E8%93%9D%E7%B2%BE%E7%81%B5&sex=1&language=zh_CN&city=&province=&country=%E4%BA%9A%E7%BE%8E%E5%B0%BC%E4%BA%9A&headimgurl=http://thirdwx.qlogo.cn/mmopen/vi_32/LR8sl1PEtPjKE8JL6jibMOPujBiagibibOziaq2sib7ftatL6ic5KkKq9CnPwb6FiaMPToF0QaF6b58HzB6b5bKFlXIYGA/132&unionid=ojq1tt61BY7nB6CdW1mwi2guTouA&sign=00b6aead5e38c1d8d293a6f1a1dbf757#)  
+
+[凤凰诗社美洲总社微诗社《缱绻的画卷》同题精品](https://www.toutiao.com/i6621121053252911630)  
+
+[《翠竹青青》同题精品 || 凤凰诗社美洲总社微诗社](https://mp.weixin.qq.com/s/BIL_rJTXQGJmXAf-A6B58A)  
+
+[凤凰诗刊 || 凤凰诗社美洲总社026期三行微诗同题《锅碗瓢盆》](https://mp.weixin.qq.com/s?__biz=MzUyNjgwNDIwMA==&mid=2247483893&idx=1&sn=3b8976d2f7be6cd3f53ee2df798e2138&chksm=fa087472cd7ffd64fa2605e456054119941b7d8825bc90ec55063b59562c24c78b519e6b95a5&mpshare=1&scene=2&srcid=1031KQe0Jnkc1MGD9d3BPhCF&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=AwABAAoACwAUAAMAJZceAFmZHgCMmR4AAAA%3D&lang=zh_CN&pass_ticket=OG8haxMeRkGg2SiJUjNOpCdWb3tzuKJNEwFwFh7jg0RoSjVcofDKzRLeDgtxCVhT&wx_header=1)  
+
+[凤凰大洋洲总社【骄阳有约】有声文学平台031期 黄真《望乡 组诗两首》](https://mp.weixin.qq.com/s/_uKNjpKDWaiHIQCYWKPF9A)  
+
+[【冬雪骄阳*黄真 双语（bilingual)分诵】大洋洲凤凰诗社【骄阳有约】有声文学平台 黄真原创作品](https://mp.weixin.qq.com/s/qUlevkuL4zVYdwSJR5or5g)  
+
+[凤凰大洋洲总社【骄阳有约】有声文学平台031期 黄真《望乡 组诗两首》](https://mp.weixin.qq.com/s/_uKNjpKDWaiHIQCYWKPF9A)  
 
 ##### 诗情太平洋作品  
 
@@ -164,3 +181,15 @@
 [同题 ‖ 【诗情太平洋】第57期《飞越海岸线》（古韵篇）](https://mp.weixin.qq.com/s?__biz=MzI4Mzc0NzIzMA==&mid=2247484208&idx=2&sn=1fde2f918a3b6f440a3f9003b6919578&chksm=eb84b5c1dcf33cd7bcafec23833fb90a8bb1cbbf35639d73e9e526073978b967b39a17a49fa4&mpshare=1&scene=2&srcid=1010V9TaEPSwEBeG2z4XdtGG&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=qv1bfFLVyjDbHLuXmHrH%2Bj%2BDGGflhA7qn3Q7jCvknBvnmqL4kpEpk8E1LU5iM8DO&wx_header=1)  
 
 [同题  ‖ 【诗情太平洋】第58期《呼唤黎明》（现代诗篇，上）](https://mp.weixin.qq.com/s/V8S1dmNDRxBqjlYoRJop_A)  
+
+[同题 | 【诗情太平洋】【一路诗香】第60期《风花雪月》（现代诗篇，上）](https://mp.weixin.qq.com/s/cuBCeyllajOrECuedtTozA)  
+
+#### 山风的诗（主题专辑）
+
+[【山风的微诗】第一辑（20首） - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/3f2bc13bd02a)  
+
+[【山风诗】之“怀乡”篇 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/87d3b4655826)  
+
+[【山风的诗】之“感悟人生”篇 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/06c1008a00a7)  
+
+
