@@ -30,7 +30,7 @@
 
 [【山风散文】之七《记得那时年纪小》 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/06b35b4ac937)  
 
-
+[【山风散文】（之八）用心感受生活 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/42be69e9c9ef)   
 # 诗
 
 ### 文学艺术联盟作品  
@@ -200,10 +200,13 @@
 
 ### 山风的诗（主题专辑）
 
+[【黄真】山风微诗欣赏](https://mp.weixin.qq.com/s/YhQxXWrp4vkSWmUn_U9rlA) 
+
 [【山风的微诗】第一辑（20首） - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/3f2bc13bd02a)  
 
 [【山风诗】之“怀乡”篇 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/87d3b4655826)  
 
 [【山风的诗】之“感悟人生”篇 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/06c1008a00a7)  
+
 
 
