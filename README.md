@@ -1,9 +1,9 @@
 ![alt](https://raw.githubusercontent.com/Frank093099/Frank093099.github.io/master/2.jpeg)  
 
 
-散文
--------------------
-##  文学艺术联盟 作品
+# 散文
+
+###  文学艺术联盟 作品
 [诵读《人在旅途》文：独舞的蓝精灵‖诵：大魏哥](https://mp.weixin.qq.com/s/qJfaJb6Vm89cORC-77cJcA)  
 
 [诵读《谁是谁的sunshine》文：独舞的蓝精灵‖诵：天高云淡](https://mp.weixin.qq.com/s/9nEgrvk_Sko_I03hh4Hbkw)  
@@ -16,24 +16,24 @@
 
 [配乐散文《花儿为谁红》文：独舞的蓝精灵‖配乐：晨曦](https://mp.weixin.qq.com/s/VcooosjWATayR_rWf7aVTA)
 
-## 黄土情文学 作品
+### 黄土情文学 作品
 
 [黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&idx=3&sn=02c6ef044c03bcabae9871ecf6126176&chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0803WzmOPlwCjk4GWkWqZnZA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&wx_header=1) 
 
-## 商洛作家 作品
+### 商洛作家 作品
 
 [【商洛作家】 <<怀念我的母亲>> || 黄真](https://mp.weixin.qq.com/s/LANyWmINyPf67Rcc7De4JA)  
 
-## 简书-山风 作品
+### 简书-山风 作品
 
 [散文//活涩生香](https://www.jianshu.com/p/246c8d87d37f)  
 
 [【山风散文】之七《记得那时年纪小》 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/06b35b4ac937)  
 
 
-诗
--------------------
-## 文学艺术联盟作品  
+# 诗
+
+### 文学艺术联盟作品  
 
 [诵读《山峦》文：独舞的蓝精灵‖诵：桃子](https://mp.weixin.qq.com/s/QU89PwQXSmxYqzP9KcTQUw)  
 
@@ -73,16 +73,16 @@
 [【长安风.山之恋分社】《流水抚平创伤》文：山风‖诵：月儿](https://mp.weixin.qq.com/s/Spb2K6ruVY1CPqwv-FVamg)  
 
 
-## 绿色文学作品  
+### 绿色文学作品  
 
 [七夕 丨 陕西诗人为你写诗](https://mp.weixin.qq.com/s/NGEfNjqY4zbQgLA6IQn7jQ)    
 
-##  花瓣雨文化工作室   
+###  花瓣雨文化工作室   
 
 [久违的月光I作者/黄真I朗诵/幸福像花儿一样](https://mp.weixin.qq.com/s?__biz=MzU1MzUzMTg1MA==&mid=2247508822&idx=3&sn=a0b41c93afdc24fa97031959bd61a041&chksm=fbf383f3cc840ae520acdc413808252b025ef12a4db4e70e6f26cbd31401c2749bf36ecb68e9&mpshare=1&scene=2&srcid=10103Glt1P5ocrR97cDXKLHY&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=qv1bfFLVyjDbHLuXmHrH%2Bj%2BDGGflhA7qn3Q7jCvknBvnmqL4kpEpk8E1LU5iM8DO&wx_header=1)  
 
 
-## 黄土情文学作品  
+### 黄土情文学作品  
 
 [你是老师——写在教师节前夕‖黄真](https://mp.weixin.qq.com/s/65iEEQh2EfzI3XSo1pObfQ)  
 
@@ -92,7 +92,7 @@
 
 [第九期入选作品：黄真《夏天（组诗）》](https://mp.weixin.qq.com/s/gi_2HwAerXNrl7KtCXb2iw)  
 
-## 兰图多彩诗人作品  
+### 兰图多彩诗人作品  
 
 [兰图多彩诗歌总社1838期《想和上帝交朋友》](https://mp.weixin.qq.com/s?__biz=MzU4NjMxNzk1Mw==&mid=2247496253&idx=2&sn=70758da5b25bc78e297076e81b628995&chksm=fdff9bd3ca8812c538358ad4fa15d099d5d3666b8ab843835dc4bc532a8eed90df34572095b7&mpshare=1&scene=2&srcid=0922BIGBhiYJWcaZJcTSMxSy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1) 
 
@@ -102,7 +102,7 @@
 
 
 
-## 天竺山杂志 作品  
+### 天竺山杂志 作品  
 
 [【散笔书心】银花河，我故乡‖黄真](https://mp.weixin.qq.com/s/25a-pM7d__N7ys0IgwrClA)  
 
@@ -111,16 +111,16 @@
 
 
 
-## 南城文化作品  
+### 南城文化作品  
 
 [文学驿站 ‖ 黄真：校园九月（诗词五首）](https://mp.weixin.qq.com/s?__biz=MzAxMTk3NTczMg==&mid=2247492466&idx=2&sn=9ae5458eb833aae036fd9d1d4dae754d&chksm=9bba4e29accdc73f2d6d041b7913381a49638c528fca7dec721e68831e2e4232812bd9e96d36&mpshare=1&scene=2&srcid=0911Su67WBzkUGCnpkyBrfJy&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)    
 
 
 
 
-## 凤凰诗社作品  
+### 凤凰诗社作品  
 
-##### 凤凰诗社美洲总社 微诗作品
+###### 凤凰诗社美洲总社 微诗作品
 [凤凰诗社美洲总社035期三行微诗同题《祖国 我的梦》](https://www.meipian.cn/1mo5d7il?share_depth=2&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
 
 [《枫红醉秋◎诗选》凤凰美洲诗刊 (038期)](https://www.meipian.cn/1n8vgme8?share_depth=2&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
@@ -172,7 +172,7 @@
 
 [凤凰诗刊  凤凰诗社美洲总社026期三行微诗同题《锅碗瓢盆》](https://mp.weixin.qq.com/s?__biz=MzUyNjgwNDIwMA==&mid=2247483893&idx=1&sn=3b8976d2f7be6cd3f53ee2df798e2138&chksm=fa087472cd7ffd64fa2605e456054119941b7d8825bc90ec55063b59562c24c78b519e6b95a5&mpshare=1&scene=2&srcid=1031KQe0Jnkc1MGD9d3BPhCF&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=AwABAAoACwAUAAMAJZceAFmZHgCMmR4AAAA%3D&lang=zh_CN&pass_ticket=OG8haxMeRkGg2SiJUjNOpCdWb3tzuKJNEwFwFh7jg0RoSjVcofDKzRLeDgtxCVhT&wx_header=1)  
 
-#### 凤凰诗社美洲总社 现代诗作品
+###### 凤凰诗社美洲总社 现代诗作品
 
 [《流水抚……》凤凰美洲诗刊044期 - 美篇](https://www.meipian.cn/1ok18l5y?share_depth=5&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
 
@@ -186,7 +186,7 @@
 
 [水儿/黄真原创诗歌《水儿的快乐》大洋洲凤凰诗社【骄阳有约】有声平台046期【双语（bilingual)分诵冬雪骄阳*黄真】](https://mp.weixin.qq.com/s/S15KDudp5ZdXhj-DYV7g4w)  
 
-## 诗情太平洋作品  
+### 诗情太平洋作品  
 
 [同题 ‖ 【诗情太平洋】第55期《迂回》（现代诗篇，下）](https://mp.weixin.qq.com/s?__biz=MzI4Mzc0NzIzMA==&mid=2247484178&idx=2&sn=3c1800f586f1abf4c20191a869ea501f&chksm=eb84b5e3dcf33cf5a8c65b7ebf23d69a5f656778bd14aae148e28c47b5f274b54187b592bcd9&mpshare=1&scene=2&srcid=0927etT2rVh5Ysi3RkMIpSAA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
 
@@ -198,7 +198,7 @@
 
 [同题  【诗情太平洋】【一路诗香】第60期《风花雪月》（现代诗篇，上）](https://mp.weixin.qq.com/s/cuBCeyllajOrECuedtTozA)  
 
-## 山风的诗（主题专辑）
+### 山风的诗（主题专辑）
 
 [【山风的微诗】第一辑（20首） - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/3f2bc13bd02a)  
 
