@@ -172,6 +172,10 @@
 
 [凤凰大洋洲总社【骄阳有约】有声文学平台031期 黄真《望乡 组诗两首》](https://mp.weixin.qq.com/s/_uKNjpKDWaiHIQCYWKPF9A)  
 
+[《日子》凤凰美洲诗刊052期 - 美篇](https://www.meipian.cn/1rhmq6oi?first_share_uid=16790109&share_depth=2&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&user_id=ohbsluFcH_YXmfx3ya48Ik_LMCVo&from=groupmessage&isappinstalled=0)  
+
+[水儿/黄真原创诗歌《水儿的快乐》大洋洲凤凰诗社【骄阳有约】有声平台046期【双语（bilingual)分诵冬雪骄阳*黄真】](https://mp.weixin.qq.com/s/S15KDudp5ZdXhj-DYV7g4w)  
+
 ##### 诗情太平洋作品  
 
 [同题 ‖ 【诗情太平洋】第55期《迂回》（现代诗篇，下）](https://mp.weixin.qq.com/s?__biz=MzI4Mzc0NzIzMA==&mid=2247484178&idx=2&sn=3c1800f586f1abf4c20191a869ea501f&chksm=eb84b5e3dcf33cf5a8c65b7ebf23d69a5f656778bd14aae148e28c47b5f274b54187b592bcd9&mpshare=1&scene=2&srcid=0927etT2rVh5Ysi3RkMIpSAA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
