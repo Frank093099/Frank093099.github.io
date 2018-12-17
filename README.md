@@ -31,7 +31,12 @@
 [【山风散文】之七《记得那时年纪小》 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/06b35b4ac937)  
 
 [【山风散文】（之八）用心感受生活 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/42be69e9c9ef)   
+
 # 诗
+
+### 参赛现代诗
+
+[黄真诗歌||春【首届“左龙右虎”杯国际诗歌大赛】](https://mp.weixin.qq.com/s/AHw1RedoIpcfM9HkL5VorA)  
 
 ### 文学艺术联盟作品  
 
@@ -127,11 +132,11 @@
 
 [凤凰诗刊 ‖ 凤凰诗社美洲总社015期“三行微诗实力诗人”专辑](https://mp.weixin.qq.com/s?__biz=MzUyNjgwNDIwMA==&mid=2247483826&idx=1&sn=ebafb6deb9d6299e02185816dd19fb8b&chksm=fa087435cd7ffd23018f75a461d53567ebaa3b0813ab152ea15e39a2143ba84d851434c5c6ac&mpshare=1&scene=2&srcid=0916xgPVCvZkF1tPuZMiTMxl&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=e8g7Y3KdoCM8KZ7K6%2FJPoCVonLOLzJYKpvLAqHyD9VtiOX%2FHXcgqk%2FgTFPZ7CiEB&wx_header=1)  
 
-[《凤凰诗社美洲总社微诗社006期微诗同题“恩师”](https://www.meipian.cn/1lr9an71?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=null&first_share_uid=null&from=timeline)  
+[《凤凰诗社美洲总社微诗社006期微诗同题“恩师”](https://www.meipian.cn/1lr9an71)  
 
 [李英、云渊、黄真等微诗欣赏](https://ishare.iclient.ifeng.com/tizmm/news/shareNews?fromType=vampire&forward=1&aid=sub_78735646&ch=&aman=deNcd3yfdbQ43aGeafk7afs404i350G7e0T9dfNb17&gud=99j894K379&from=timeline)  
 
-[凤凰诗社美洲总社033期三行微诗同题《醉落夕风》](https://www.meipian.cn/1m9excry?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
+[凤凰诗社美洲总社033期三行微诗同题《醉落夕风》](https://www.meipian.cn/1m9excry)  
 
 [中秋月圆我梦同题诗歌36首微诗：海上生明月 天涯共此诗](https://mbd.baidu.com/newspage/data/landingshare?pageType=1&isBdboxFrom=1&context=%7B%22nid%22%3A%22news_9477160584793500563%22%2C%22sourceFrom%22%3A%22bjh%22%7D&from=timeline&isappinstalled=0)  
 
@@ -142,29 +147,29 @@
 [【凤凰诗人】黄真“秋之约”微诗专辑](https://www.jianshu.com/p/457100134f53)  
 
 
-[【凤凰诗人】今日头条](https://m.toutiaocdn.com/i6608167561538306574/?iid=45290553026&app=news_article&amp;timestamp=1538585654&group_id=6608167561538306574&amp;tt_from=weixin&utm_source=weixin&utm_medium=toutiao_ios&utm_campaign=client_share&amp;wxshare_count=5&from=timeline&isappinstalled=0&amp;pbid=6608272354718746116)  
+[【凤凰诗人】今日头条](https://m.toutiaocdn.com/i6608167561538306574)  
 
   
-[《枫红醉秋◎诗选》凤凰美洲诗刊 (038期) - 美篇](https://www.meipian.cn/1n8vgme8?share_depth=2&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&amp;first_share_uid=16790109&from=timeline)   
+[《枫红醉秋◎诗选》凤凰美洲诗刊 (038期) - 美篇](https://www.meipian.cn/1n8vgme8)   
 
     
-[《栖旅若……》凤凰美洲诗刊039期 - 美篇](https://www.meipian.cn/1nn8n6h2?share_depth=1&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&amp;first_share_uid=16790109&from=timeline)  
+[《栖旅若……》凤凰美洲诗刊039期 - 美篇](https://www.meipian.cn/1nn8n6h2)  
 
       
-[凤凰诗社美洲总社微诗社009期 - 美篇](https://www.meipian.cn/1n3dbyq7?share_depth=1&amp;user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&amp;first_share_uid=49509441&from=timeline)   
+[凤凰诗社美洲总社微诗社009期 - 美篇](https://www.meipian.cn/1n3dbyq7)   
 
-[《落叶泪》凤凰美洲诗刊（040期） - 美篇](https://www.meipian.cn/1nsrryxg?share_depth=6&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
+[《落叶泪》凤凰美洲诗刊（040期） - 美篇](https://www.meipian.cn/1nsrryxg)  
 
 
 [凤凰诗社  凤凰诗社美洲总社021期三行微诗同题《霓虹的诱惑》](https://mp.weixin.qq.com/s/w8kekOkd16arnaPaDJ7Lcw)  
 
-[《龙入海》 - 美篇](https://www.meipian.cn/1odab9nb?share_depth=1&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
+[《龙入海》 - 美篇](https://www.meipian.cn/1odab9nb)  
 
-[凤凰诗社美洲总社微诗社010期三行微诗同题《梦吴越》](https://www.meipian.cn/1nvw60rz?share_depth=1&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&first_share_uid=49509441&from=timeline)  
+[凤凰诗社美洲总社微诗社010期三行微诗同题《梦吴越》](https://www.meipian.cn/1nvw60rz)  
 
 [《立冬》三行诗同题精品 凤凰诗社美洲总社微诗社](https://mp.weixin.qq.com/s/WWI3KVXrZZdbMbnOXoD_Eg)  
 
-[凤凰诗社美洲总社011期同题现代诗《你是一首诗》 - 美篇](https://www.meipian.cn/1qcnu7ov?share_depth=3&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=4c07a1e59a699de3fcbb214a8437f21b&first_share_uid=49509441&from=timeline&openid=ohbsluA9pAxp2hwCtZjLPcxOOfAc&nickname=%E7%8B%AC%E8%88%9E%E7%9A%84%E8%93%9D%E7%B2%BE%E7%81%B5&sex=1&language=zh_CN&city=&province=&country=%E4%BA%9A%E7%BE%8E%E5%B0%BC%E4%BA%9A&headimgurl=http://thirdwx.qlogo.cn/mmopen/vi_32/LR8sl1PEtPjKE8JL6jibMOPujBiagibibOziaq2sib7ftatL6ic5KkKq9CnPwb6FiaMPToF0QaF6b58HzB6b5bKFlXIYGA/132&unionid=ojq1tt61BY7nB6CdW1mwi2guTouA&sign=00b6aead5e38c1d8d293a6f1a1dbf757#)  
+[凤凰诗社美洲总社011期同题现代诗《你是一首诗》 - 美篇](https://www.meipian.cn/1qcnu7ov)  
 
 [凤凰诗社美洲总社微诗社《缱绻的画卷》同题精品](https://www.toutiao.com/i6621121053252911630)  
 
@@ -172,11 +177,23 @@
 
 [凤凰诗刊  凤凰诗社美洲总社026期三行微诗同题《锅碗瓢盆》](https://mp.weixin.qq.com/s?__biz=MzUyNjgwNDIwMA==&mid=2247483893&idx=1&sn=3b8976d2f7be6cd3f53ee2df798e2138&chksm=fa087472cd7ffd64fa2605e456054119941b7d8825bc90ec55063b59562c24c78b519e6b95a5&mpshare=1&scene=2&srcid=1031KQe0Jnkc1MGD9d3BPhCF&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=AwABAAoACwAUAAMAJZceAFmZHgCMmR4AAAA%3D&lang=zh_CN&pass_ticket=OG8haxMeRkGg2SiJUjNOpCdWb3tzuKJNEwFwFh7jg0RoSjVcofDKzRLeDgtxCVhT&wx_header=1)  
 
+[【云天社@巴西分社】精品同题微诗：绿洲靠岸](https://mp.weixin.qq.com/s/eZ8W4VkxoWgFTi0BnFmMVA)  
+
+[《心岸》三行诗同题精品](https://www.toutiao.com/i6635147238249071118)  
+
+[《摆渡》三行诗同题精品](https://www.toutiao.com/i6632239384177410564)  
+
 ###### 凤凰诗社美洲总社 现代诗作品
 
-[《流水抚……》凤凰美洲诗刊044期 - 美篇](https://www.meipian.cn/1ok18l5y?share_depth=5&user_id=ohbsluA9pAxp2hwCtZjLPcxOOfAc&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&first_share_uid=16790109&from=timeline)  
+[《流水抚……》凤凰美洲诗刊044期 - 美篇](https://www.meipian.cn/1ok18l5y)  
 
-[《日子》凤凰美洲诗刊052期 - 美篇](https://www.meipian.cn/1rhmq6oi?first_share_uid=16790109&share_depth=2&share_user_mpuuid=ba9ce8bbf713f2e18bb5c8e66e399ab8&user_id=ohbsluFcH_YXmfx3ya48Ik_LMCVo&from=groupmessage&isappinstalled=0)  
+[《日子》凤凰美洲诗刊052期 - 美篇](https://www.meipian.cn/1rhmq6oi)  
+
+[凤凰诗刊ll凤凰诗社美洲总社056期同题现代诗《0》](https://www.meipian.cn/1smt07y2)  
+
+[凤凰诗刊ll凤凰诗社美洲总社037期同题现代诗《每逢周五》](https://mp.weixin.qq.com/s/HJlpXCRauxwhcWtLyaapJg)  
+
+[【中英文艺家在线】同题现代诗《情书是梦里虚掩的门》](https://mp.weixin.qq.com/s/Lan804EKEsNd3VAkWfp1cg)  
 
 [凤凰大洋洲总社【骄阳有约】有声文学平台031期 黄真《望乡 组诗两首》](https://mp.weixin.qq.com/s/_uKNjpKDWaiHIQCYWKPF9A)  
 
@@ -198,6 +215,10 @@
 
 [同题  【诗情太平洋】【一路诗香】第60期《风花雪月》（现代诗篇，上）](https://mp.weixin.qq.com/s/cuBCeyllajOrECuedtTozA)  
 
+[同题 | 【诗情太平洋】第64期《时光的栅栏》（散文篇）](https://mp.weixin.qq.com/s/Y0l3tV5I9M7NDRZfVSj2Zg)  
+
+[同题 | 【诗情太平洋】第63期《因你而起的......》（现代诗，下篇）](https://mp.weixin.qq.com/s/Gn0MNBGrzg-zBD9B3iHwDQ)  
+
 ### 山风的诗（主题专辑）
 
 [【黄真】山风微诗欣赏](https://mp.weixin.qq.com/s/YhQxXWrp4vkSWmUn_U9rlA) 
@@ -207,6 +228,12 @@
 [【山风诗】之“怀乡”篇 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/87d3b4655826)  
 
 [【山风的诗】之“感悟人生”篇 - 独舞的蓝精灵 - 简书](https://www.jianshu.com/p/06c1008a00a7)  
+
+[冬听雪语（"雪"专辑）](https://www.meipian.cn/1sz89lum)  
+
+[季节心语2(黄真微诗)](https://www.meipian.cn/1sm2r39l)  
+
+[(黄真（山风）微诗)第二辑-独舞的蓝精灵-简书](https://www.jianshu.com/p/81883c7881c7)  
 
 
 
