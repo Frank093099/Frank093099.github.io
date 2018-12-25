@@ -36,7 +36,7 @@
 
 ### 参赛现代诗
 
-[黄真诗歌||春【首届“左龙右虎”杯国际诗歌大赛】](https://mp.weixin.qq.com/s/AHw1RedoIpcfM9HkL5VorA)  
+[黄真诗歌 春【首届“左龙右虎”杯国际诗歌大赛】](https://mp.weixin.qq.com/s/AHw1RedoIpcfM9HkL5VorA)  
 
 ### 文学艺术联盟作品  
 
@@ -215,9 +215,9 @@
 
 [同题  【诗情太平洋】【一路诗香】第60期《风花雪月》（现代诗篇，上）](https://mp.weixin.qq.com/s/cuBCeyllajOrECuedtTozA)  
 
-[同题 | 【诗情太平洋】第64期《时光的栅栏》（散文篇）](https://mp.weixin.qq.com/s/Y0l3tV5I9M7NDRZfVSj2Zg)  
+[同题  ‖ 【诗情太平洋】第64期《时光的栅栏》（散文篇）](https://mp.weixin.qq.com/s/Y0l3tV5I9M7NDRZfVSj2Zg)  
 
-[同题 | 【诗情太平洋】第63期《因你而起的......》（现代诗，下篇）](https://mp.weixin.qq.com/s/Gn0MNBGrzg-zBD9B3iHwDQ)  
+[同题  ‖ 【诗情太平洋】第63期《因你而起的......》（现代诗，下篇）](https://mp.weixin.qq.com/s/Gn0MNBGrzg-zBD9B3iHwDQ)  
 
 ### 山风的诗（主题专辑）
 
