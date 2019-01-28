@@ -16,6 +16,9 @@
 
 [配乐散文《花儿为谁红》文：独舞的蓝精灵‖配乐：晨曦](https://mp.weixin.qq.com/s/VcooosjWATayR_rWf7aVTA)
 
+[同题 | 【诗情太平洋】第65期《不问归期》（散文篇）](https://mp.weixin.qq.com/s/q5O6apVykrFyHD7Qm_gIhw)    
+
+[散文品读《时光的栅栏》//文：黄真](https://mp.weixin.qq.com/s/p_60CZC6Ts-X9aM2aItNlw)    
 ### 黄土情文学 作品
 
 [黄土情文学《生活的色彩》文：黄真](https://mp.weixin.qq.com/s?__biz=MzUzMTMyMTMzNw==&mid=2247485530&idx=3&sn=02c6ef044c03bcabae9871ecf6126176&chksm=fa4510cccd3299dae79d8e004e0557412a9fe9bc2a5ab235a57508f798b46f75f9ed5a3aa2cc&mpshare=1&scene=2&srcid=0803WzmOPlwCjk4GWkWqZnZA&from=timeline&ascene=2&devicetype=android-24&version=26060739&nettype=WIFI&abtest_cookie=BAABAAoACwANABMABAAllx4AWZkeAH2ZHgCBmR4AAAA%3D&lang=zh_CN&pass_ticket=DwqwZroeVm7CABryNKdDghyQzWG8Li8NtO%2BrMvAxmrdTSh9wLWZJGffLcHvDuoA%2B&wx_header=1) 
@@ -37,6 +40,8 @@
 ### 参赛现代诗
 
 [黄真诗歌 春【首届“左龙右虎”杯国际诗歌大赛】](https://mp.weixin.qq.com/s/AHw1RedoIpcfM9HkL5VorA)  
+
+[签约诗人山风《春的语言》入围《文学艺术联盟》“春”征文大赛作品展](https://mp.weixin.qq.com/s/VsoH_SgiZF6vrxdxvydKNA)    
 
 ### 文学艺术联盟作品  
 
@@ -81,6 +86,8 @@
 ### 绿色文学作品  
 
 [七夕 丨 陕西诗人为你写诗](https://mp.weixin.qq.com/s/NGEfNjqY4zbQgLA6IQn7jQ)    
+
+[诗汇 丨 丰收的期盼](https://mp.weixin.qq.com/s/G5rA7jIXDQEUQE4fh-gwfQ)    
 
 ###  花瓣雨文化工作室   
 
@@ -187,6 +194,8 @@
 
 [《流水抚……》凤凰美洲诗刊044期 - 美篇](https://www.meipian.cn/1ok18l5y)  
 
+[《生命中的一缕光》凤凰美洲诗刊第068期](https://www.meipian.cn/1v5h0c1m)    
+
 [《日子》凤凰美洲诗刊052期 - 美篇](https://www.meipian.cn/1rhmq6oi)  
 
 [凤凰诗刊ll凤凰诗社美洲总社056期同题现代诗《0》](https://www.meipian.cn/1smt07y2)  
@@ -202,6 +211,14 @@
 [凤凰大洋洲总社【骄阳有约】有声文学平台031期 黄真《望乡 组诗两首》](https://mp.weixin.qq.com/s/_uKNjpKDWaiHIQCYWKPF9A)  
 
 [水儿/黄真原创诗歌《水儿的快乐》大洋洲凤凰诗社【骄阳有约】有声平台046期【双语（bilingual)分诵冬雪骄阳*黄真】](https://mp.weixin.qq.com/s/S15KDudp5ZdXhj-DYV7g4w)  
+
+[《暖》凤凰美洲总社061期](https://www.meipian.cn/1ubkwrf0)  
+
+[凤凰诗刊 美洲总社058期同题现代诗《夕阳》](https://www.meipian.cn/1tncmjvd)  
+
+[《尘缘》凤凰美洲总社第072期](https://www.meipian.cn/1vegju6c)  
+
+[【云天社@巴西分社】你是我此生行走的树 文/黄真（西安）](https://mp.weixin.qq.com/s/BfH5n1_8TkEN1IK2HojZlQ)    
 
 ### 诗情太平洋作品  
 
@@ -219,6 +236,8 @@
 
 [同题  ‖ 【诗情太平洋】第63期《因你而起的......》（现代诗，下篇）](https://mp.weixin.qq.com/s/Gn0MNBGrzg-zBD9B3iHwDQ)  
 
+
+
 ### 山风的诗（主题专辑）
 
 [【黄真】山风微诗欣赏](https://mp.weixin.qq.com/s/YhQxXWrp4vkSWmUn_U9rlA) 
@@ -235,5 +254,38 @@
 
 [(黄真（山风）微诗)第二辑-独舞的蓝精灵-简书](https://www.jianshu.com/p/81883c7881c7)  
 
+### 山听风吟
 
+[风从山里来（"怀乡诗"专辑）](https://www.meipian.cn/1t7d7a68)  
 
+[你是一首诗（"爱情诗"专辑）](https://www.meipian.cn/1t99ih9o)  
+
+[前世情缘（黄真"爱情微诗"专辑）](https://www.meipian.cn/1tb0cvzh)  
+
+[[山风随笔1]《感悟新时光》](https://mp.weixin.qq.com/s/lNuh7fow7qHKzBANb1wHEQ)  
+
+[【山风的诗2】《不忘初心 砥砺向前 扬帆起航 前景无限》](https://mp.weixin.qq.com/s/0S8MuwnBiPx0TlSGmaObfw)  
+
+[山风微诗3《 中秋节》//文：黄真](https://mp.weixin.qq.com/s/aabv_XWnrbbZHcw_3ZObFA)  
+
+[山风微诗《生活心语》//文：黄真](https://mp.weixin.qq.com/s/r_r60Kr66FKtG93b277KiA)  
+
+[[山风随笔1]《感悟新时光》](https://mp.weixin.qq.com/s/lNuh7fow7qHKzBANb1wHEQ)  
+
+["山听风吟"微诗组《故乡的年味儿》 //文:黄真](https://mp.weixin.qq.com/s/ZP-ZfV_gMwOgoDfPnGByyA)  
+
+[“山听风吟”山风微诗（第三辑）《风的心事》//文：黄真](https://mp.weixin.qq.com/s/-z-ksD_4foHVZPBruUzgKw)  
+
+["山听风吟"现代诗《思念，是一杯酒》//文：黄真](https://mp.weixin.qq.com/s/nZRvOZrH6jnKtT4wYjQ6Eg)  
+
+[【配乐诗朗诵】：故乡的年味儿 文/黄真 诵读/月儿](https://mp.weixin.qq.com/s/Zo6B5VHEPVgp50hfA6AXuw)  
+
+["山听风吟"微诗组《故乡的年味儿》 //文:黄真](https://mp.weixin.qq.com/s/ZP-ZfV_gMwOgoDfPnGByyA)    
+
+[原创诵读《爸妈，等你们回家》 // 文/黄真（西安）](https://mp.weixin.qq.com/s/rvNO2rgGi8CPWmTN9jfHCg)    
+
+[双语诵读《思念在雪花盛开的时候》//文:黄真 //诵读:月儿、黄真](https://mp.weixin.qq.com/s/Zp9raNbG3KsQLpK1sGtY7g)    
+
+["山听风吟" 小小说《我要回家》（上） // 文:黄真](https://mp.weixin.qq.com/s/zyhf46kfJeZVsHCd6onbgA)  
+
+[“山听风吟”小小说《我要回家》(下) //文：黄真](https://mp.weixin.qq.com/s/RG9mLqOFdUlzestYmVqktQ)  
